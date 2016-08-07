@@ -2,6 +2,7 @@
 
 I store some of my projects pictures in Imgur, here I put the link to them. Enjoy!
 
+
 Backsaw repairs : http://imgur.com/a/d6zvS
 
 Small pine bookcase : http://imgur.com/a/VlB9j
