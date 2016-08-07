@@ -1,6 +1,6 @@
 # Woodworking portfolio
 
-I store some of my projects pictures in Imgur, here I put the link to them. Enjoy!
+I store some of my projects pictures on Imgur, here I put a link to them for simplicity. Enjoy!
 
 
 Backsaw repairs : http://imgur.com/a/d6zvS
